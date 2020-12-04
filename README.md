@@ -1,7 +1,7 @@
 ## Hi hope you doing well, 😎
 
 - 🌎 Check out my website [ramagg.com](https://ramagg.com)
-- ✍ And my  [Blog](https://blog.ramagg.com)
+- ✍ And my  [Blog](https://ramagg.com/blog)
 - 🎥 Also my Youtube channel [Ramgen](https://www.youtube.com/channel/UCJUIogvrTyXFXvi3SegniuA)
 - More here 😄 [Socials](https://ramagg.com/socials)
 <!--
